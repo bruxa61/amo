@@ -1,0 +1,2 @@
+# amo
+bobeira pro pp
